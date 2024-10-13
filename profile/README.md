@@ -1,6 +1,6 @@
 # Koaley Group Ltd
 
-![Koaley Group Ltd Logo](https://koaleygroup.com/wp-content/uploads/2024/10/koaleygroup-logo-coloured.png)
+![Koaley Group Ltd Logo](https://koaleygroup.com/wp-content/uploads/2024/10/koaley-logo-white-bg-wide.jpg)
 
 ---
 
