@@ -1,6 +1,6 @@
 # Koaley Group Ltd - _your solutions partner_
 
-![Koaley Group Ltd Logo](https://koaleygroup.com/wp-content/uploads/2024/10/koaley-logo-white-bg-wide.jpg)
+![Koaley Group Ltd Logo](https://koaleygroup.com/wp-content/uploads/2024/10/Koaley-Group-Logo-300x90.png)
 
 ---
 
